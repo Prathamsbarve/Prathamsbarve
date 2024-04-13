@@ -11,6 +11,6 @@ I'm actively exploring new technologies and eager to contribute to meaningful pr
 
 **Let's connect!** 
 
-* My **LinkedIN** :
+* My **LinkedIN** : [www.linkedin.com/in/prathamesh-barve-7749ba1a2]
   
-[www.linkedin.com/in/prathamesh-barve-7749ba1a2]
+
